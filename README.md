@@ -1,2 +1,3 @@
 # imagenes-electro
-![elec](https://github.com/user-attachments/assets/0b3866f4-e655-4121-9aa8-cf6e182274cf)
+
+![saosi](https://github.com/user-attachments/assets/f2859e8e-787f-4d51-adb0-2cd2fa2e8209)
